@@ -2,7 +2,7 @@
 
 # Olga Sokolova
 
-**telephone number : +375 29 6745415(A1) **
+**telephone number : +375 29 6745415(A1)**
 **e-mail:  astra-101@rambler.ru**
 **Date of birth:  04.08.1989**
 
