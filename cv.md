@@ -18,6 +18,11 @@ Willingness to learn.
 
 The current level of English is approximately B1 +. 
 **Work experience:**
-*LLC ”BEZOPASNO-BY” - Assistant Secretary - 5 years - work in 1C Trade Management, 1C My Accountancy;; base of contracts; paperwork; business correspondence and technical documentation translation(English); posting of goods and materials of the Republic of Belarus, personnel accounting.*
-*LLC "Vizardstroy" - Accountant of goods and materials - 8 months - work in 1C Trade Management, 1C My Accountancy; paperwork; posting of goods and materials; accounting of TN, TTN; calls detalization.*
-*LLC AstikonSnab - customer service specialist - 6 months - work in 1C My Accountancy; bank payments paperwork; business correspondence and technical documentation translation (English); posting of goods and materials of the Republic of Belarus; personnel accounting; military registration.*
+*LLC ”BEZOPASNO-BY” - Assistant Secretary - 5 years - work in 1C Trade Management, 1C My Accountancy; 
+base of contracts; paperwork; business correspondence and technical documentation translation(English); 
+posting of goods and materials of the Republic of Belarus, personnel accounting.*
+*LLC "Vizardstroy" - Accountant of goods and materials - 8 months - work in 1C Trade Management, 1C My Accountancy; 
+paperwork; posting of goods and materials; accounting of TN, TTN; calls detalization.*
+*LLC AstikonSnab - customer service specialist - 6 months - work in 1C My Accountancy; 
+bank payments paperwork; business correspondence and technical documentation translation (English); 
+posting of goods and materials of the Republic of Belarus; personnel accounting; military registration.*
