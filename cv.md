@@ -4,7 +4,7 @@
 
 **telephone number : +375 29 6745415(A1) **
 **e-mail:  astra-101@rambler.ru**
-**Дата рождения:  04.08.1989**
+**Date of birth:  04.08.1989**
 
 **Education**
 2007-2012. Minsk State Linguistic University, correspondence department, faculty of English
